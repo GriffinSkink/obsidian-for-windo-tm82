@@ -1,4 +1,4 @@
-# 
+# Enhance Obsidian for Windows with new Obsidian for Windows Integration | collaboration + templates, the #1 integration. Includes collaboration and templates for a smoother and
 
 
 
